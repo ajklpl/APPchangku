@@ -7,8 +7,9 @@ GitHub：[https://github.com/ajklpl/APPchangku](https://github.com/ajklpl/APPcha
 
 软件列表（按软件名首字母归类）：
 GitHub：
-###
++++
 TG频道及群组：
+
 Telegram频道：[https://t.me/ajk_app](https://t.me/ajk_app)
 
 Telegram群组：[https://t.me/ajk_jiaoliu](https://t.me/ajk_jiaoliu)
