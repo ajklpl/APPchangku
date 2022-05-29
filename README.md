@@ -2,7 +2,7 @@
 ## 仓库项目地址：
 GitHub：[https://github.com/ajklpl/APPchangku](https://github.com/ajklpl/APPchangku)
 
-仓库与蓝奏云非最全资源，最全资源都在TG里
+仓库与蓝奏云非最全资源，最全资源都在TG里。欢迎关注微信公众号：APP绿化君
 
 ## 下载地址（按更新时间倒序排列）：
 蓝奏主页：[https://ajk.lanzout.com/b00tn2sha](https://ajk.lanzout.com/b00tn2sha)
