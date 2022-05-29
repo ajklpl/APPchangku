@@ -6,119 +6,207 @@
 #  软件分类
    ## 影视
 星星动漫：[https://ajk.lanzout.com/b00vlzzcf](https://ajk.lanzout.com/b00vlzzcf) （密码:elkm）
-红茶影视：https://ajk.lanzout.com/b00vl7wpc  （密码:5r3o ）
-乐享视频
-飞快影视 （密码:c8ed ） 
-麻瓜影视  （密码:c2gz ）
-完美看看 （密码:dvfl ）
-荐片
-全能影视 （密码:i1xl ）
-盼盼影视 （密码:3r5m ）
-月亮影视大全 （密码:fkm2 ）
-日剧天堂 （密码:ew2p ）
-简易视频
-雪梨视频 (密码:2i4v )
-麻瓜视频  （密码:22fi ）
-迪迪影院 （密码:cu8n ） 
-飞瓜影视 （密码:3a70 ） 
-杨桃影视 （密码:9b8l ）
-黑豹影视 （密码:4ni5 ）
-293视频 （密码:86up ）
-	淘剧社 （密码:4f55 ）
-雪花视频 （密码:3gdd ）
-猫爪影视 (密码:gwj8 )
-影视大全纯净版/聚视影视大全
-河马视频
-秒开影视  (密码:4dvc )
-华数tv  (密码:9rio ) 
-次元站  （密码:apm0 ）
- 	横风动漫 （密码:7t3y ）
-蜗牛视频  (密码:4sie )
-小草影视
-搜视Pro
-肥波影视
-太空影视
-优酷视频
-影视君 （密码:bfkt）
-海阔视界
-星空影视 （密码:bri5）
-青椒影视 (原斑马影视)
-加菲猫影视 （南瓜影视）
-韩剧TV
-手机电视高清直播
-大象视频
-芒果TV
-光影
-汉堡影视
-哔哩哔哩
-腾讯视频
-小書视界
-大师兄影视 （密码:7g3y）
-大鱼影视
-Nemo
-影视大全
-天使动漫
-嘀嘀动漫
-麻花影视
-大海影视
-抖音TikTok （海外版）
-番茄影视
-heibai弹幕
-千代影视
-青苹果影院
-美剧鸟
-蓝狐影视
-可乐影视
-星球视频
-整点视频
-漫放
-看吧影视
-极光影院
-侦探影视
-云中影视
-资源猫
-视觉影视
-宇宙影视
-抖音精简版
-皇帝影视
-大熊追剧
-美剧侠
-影视TV
-醉拳影视
-曲奇影视
-金桔影视
-IPTV
-饺子视频
-皮皮动画
-嘀哩日剧
-追剧鸟
-桔子影视
-人人播放器
-樱花动漫
-白菜追剧
-影视猫 Plus
-卧龙影视
-青蛙视频
-奇奇动画
-爱美剧 （密码:3fgi）
-蓝猫视频（密码:2t5c）
-海豚影视
-阿哥美剧
-汪汪影视 （密码:60hc）
-段友影视 （密码:9b6a）
-樱花影视 （密码:5vn1）
-视界家 （ 密码:4ik6）
-薯条影视 （密码:ele6）
-花火视频 （密码:9jji）
-鲨鱼影视 （密码:e8cg）
-点点新影视
-熊猫影视  (密码:8rir )
-AGE动漫
-1080看视界 （密码:eehq ）
-火龙果影视  （密码:5xdx ）
-电影雷达
-小小影视
-好猫影视
+
+红茶影视：https://ajk.lanzout.com/b00vl7wpc  （密码:5r3o）
+
+乐享视频：https://ajk.lanzout.com/b00tw1ija
+
+飞快影视：https://ajk.lanzout.com/b00vichji （密码:c8ed）
+
+麻瓜影视：https://ajk.lanzout.com/b00vh15id  （密码:c2gz）
+
+完美看看：https://ajk.lanzout.com/b00vh102h （密码:dvfl）
+
+荐片：https://ajk.lanzout.com/b00tuy0ed
+
+全能影视：https://ajk.lanzout.com/b00vg9gjc （密码:i1xl）
+
+盼盼影视：https://ajk.lanzout.com/b00vg584f （密码:3r5m）
+
+月亮影视大全：https://ajk.lanzout.com/b00vg03hi （密码:fkm2）
+
+日剧天堂：https://ajk.lanzout.com/b00vf1pgj （密码:ew2p）
+
+简易视频：https://ajk.lanzout.com/b00tu1dsh
+
+雪梨视频：https://ajk.lanzout.com/b00vesm9a (密码:2i4v)
+
+麻瓜视频：https://ajk.lanzout.com/b00vese6j （密码:22fi）
+
+迪迪影院：https://ajk.lanzout.com/b00veg89e （密码:cu8n） 
+
+飞瓜影视：https://ajk.lanzout.com/b00vefd9i （密码:3a70） 
+
+杨桃影视：https://ajk.lanzout.com/b00vefd7g （密码:9b8l）
+
+黑豹影视：https://ajk.lanzout.com/b00ve3fod （密码:4ni5）
+
+293视频：https://ajk.lanzout.com/b00vdzg0b （密码:86up）
+
+淘剧社：https://ajk.lanzout.com/b00vduyed （密码:4f55）
+
+雪花视频：https://ajk.lanzout.com/b00vdutyd （密码:3gdd）
+
+猫爪影视：https://ajk.lanzout.com/b00vdm2aj (密码:gwj8)
+
+影视大全纯净版/聚视影视大全：https://ajk.lanzout.com/b00uh7j1a
+
+河马视频：https://ajk.lanzout.com/b00twyoid
+
+秒开影视：https://ajk.lanzout.com/b00vdabcd  (密码:4dvc)
+
+次元站：https://ajk.lanzout.com/b00vbpiij  （密码:apm0）
+
+横风动漫：https://ajk.lanzout.com/b00vb642f （密码:7t3y）
+
+蜗牛视频：https://ajk.lanzout.com/b00vb1lrc  (密码:4sie)
+
+小草影视：https://ajk.lanzout.com/b00twd5lg
+
+搜视Pro：https://ajk.lanzout.com/b00tsw6ta
+
+肥波影视：https://ajk.lanzout.com/b00u6xsyh
+
+太空影视：https://ajk.lanzout.com/b00tqy7ah
+
+优酷视频：https://ajk.lanzout.com/b00ts00pi
+
+影视君：https://ajk.lanzout.com/b00u71r2d （密码:bfkt）
+
+海阔视界：https://ajk.lanzout.com/b00tslmbc
+
+星空影视：https://ajk.lanzout.com/b00u74pre （密码:bri5）
+
+青椒影视 (原斑马影视)：https://ajk.lanzout.com/b00tpq9sd
+
+加菲猫影视 （南瓜影视）：https://ajk.lanzout.com/b00tqyysh
+
+韩剧TV：https://ajk.lanzout.com/b00toes8j
+
+手机电视高清直播：https://ajk.lanzout.com/b00tqj4od
+
+大象视频：https://ajk.lanzout.com/b00tqc8de
+
+芒果TV：https://ajk.lanzout.com/b00ts5nsj
+
+光影：https://ajk.lanzout.com/b00txia5g
+
+汉堡影视：https://ajk.lanzout.com/b00tr4fbc
+
+哔哩哔哩：https://ajk.lanzout.com/b00tmgpoh
+
+腾讯视频：https://ajk.lanzout.com/b00tpb6tg
+
+小書视界：https://ajk.lanzout.com/b00tslrof
+
+大师兄影视：https://ajk.lanzout.com/b00u7ql2h （密码:7g3y）
+
+大鱼影视：https://ajk.lanzout.com/b00ts38rg
+
+Nemo：https://ajk.lanzout.com/b00tpxyuh
+
+影视大全：https://ajk.lanzout.com/b00trtysd
+
+嘀嘀动漫：https://ajk.lanzout.com/b00u0dj7a
+
+大海影视：https://ajk.lanzout.com/b00u8bted
+
+抖音TikTok （海外版）：https://ajk.lanzout.com/b00tuy1af
+
+番茄影视：https://ajk.lanzout.com/b00tqu20d
+
+heibai弹幕：https://ajk.lanzout.com/b00tsgdzc
+
+美剧鸟：https://ajk.lanzout.com/b00tw53ej
+
+星球视频：https://ajk.lanzout.com/b00tsokhe
+
+整点视频：https://ajk.lanzout.com/b00u0wlnc
+
+漫放：https://ajk.lanzout.com/b00tplbeb
+
+看吧影视：https://ajk.lanzout.com/b00u1qr1g
+
+极光影院：https://ajk.lanzout.com/b00tp7gcf
+
+侦探影视：https://ajk.lanzout.com/b00ua6i5a
+
+资源猫：https://ajk.lanzout.com/b00tucvra
+
+抖音精简版：https://ajk.lanzout.com/b00tliv1g
+
+美剧侠：https://ajk.lanzout.com/b00ud7tgb
+
+影视TV：https://ajk.lanzout.com/b00ue4c3e
+
+醉拳影视：https://ajk.lanzout.com/b00ue4c3e
+
+曲奇影视：https://ajk.lanzout.com/b00txhbvc
+
+金桔影视：https://ajk.lanzout.com/b00tp2wnc
+
+IPTV：https://ajk.lanzout.com/b00trmedg
+
+皮皮动画：https://ajk.lanzout.com/b00ugi9kj
+
+嘀哩日剧：https://ajk.lanzout.com/b00txkxgh
+
+追剧鸟：https://ajk.lanzout.com/b00tqy6wd
+
+桔子影视：https://ajk.lanzout.com/b00uhaifg
+
+人人播放器：https://ajk.lanzout.com/b00trp21a
+
+樱花动漫：https://ajk.lanzout.com/b00ttnzeb
+
+白菜追剧：https://ajk.lanzout.com/b00ui7h5i
+
+影视猫 Plus：https://ajk.lanzout.com/b00tr5cih
+
+卧龙影视：https://ajk.lanzout.com/b00trmyjc
+
+青蛙视频：https://ajk.lanzout.com/b00tt267e
+
+奇奇动画：https://ajk.lanzout.com/b00tuu7na
+
+爱美剧：https://ajk.lanzout.com/b00um4ilg （密码:3fgi）
+
+蓝猫视频：https://ajk.lanzout.com/b00uonp2f （密码:2t5c）
+
+海豚影视：https://ajk.lanzout.com/b00tpeu7g
+
+阿哥美剧：https://ajk.lanzout.com/b00tpuf3i
+
+汪汪影视：https://ajk.lanzout.com/b00us67vi （密码:60hc）
+
+段友影视：https://ajk.lanzout.com/b00usnnyj （密码:9b6a）
+
+樱花影视：https://ajk.lanzout.com/b00utte5i （密码:5vn1）
+
+视界家：https://ajk.lanzout.com/b00uucaeh （ 密码:4ik6）
+
+薯条影视：https://ajk.lanzout.com/b00uuzoaf （密码:ele6）
+
+花火视频：https://ajk.lanzout.com/b00uv4e4j （密码:9jji）
+
+鲨鱼影视：https://ajk.lanzout.com/b00uwf52f （密码:e8cg）
+
+点点新影视：https://ajk.lanzout.com/b00tpkhif
+
+熊猫影视：https://ajk.lanzout.com/b00v80u8d  (密码:8rir )
+
+AGE动漫：https://ajk.lanzout.com/b00tzufid
+
+1080看视界：https://ajk.lanzout.com/b00v8cwxc （密码:eehq ）
+
+火龙果影视：https://ajk.lanzout.com/b00v8onah  （密码:5xdx ）
+
+电影雷达：https://ajk.lanzout.com/b00txnjaf
+
+小小影视：https://ajk.lanzout.com/b00tq1h8h
+
+好猫影视：https://ajk.lanzout.com/b00u6qgkj
+
    ## 音乐
    ## 漫画
    ## 工具
