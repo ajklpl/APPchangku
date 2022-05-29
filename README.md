@@ -5,8 +5,11 @@ GitHub：[https://github.com/ajklpl/APPchangku](https://github.com/ajklpl/APPcha
 ## 下载地址（按更新时间倒序排列）：
 蓝奏主页：[https://ajk.lanzout.com/b00tn2sha](https://ajk.lanzout.com/b00tn2sha)
 
-## 软件列表（按软件名首字母归类）：
+## 软件列表（按软件分类）：
 GitHub：
+https://github.com/ajklpl/APPchangku/blob/main/LB.md
+
+[影视](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%BD%B1%E8%A7%86)
 
 ## TG频道及群组：
 
