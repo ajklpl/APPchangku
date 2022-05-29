@@ -1,17 +1,17 @@
 APP仓库
 项目地址：
-GitHub：https://github.com/yoyodadada/haoruanfenxiang
+GitHub：[https://github.com/ajklpl/APPchangku](https://github.com/ajklpl/APPchangku)
 
 下载地址（按更新时间倒序排列）：
-蓝奏主页：https://yoyodadada.lanzouw.com/u/yoyodadada
+蓝奏主页：[https://ajk.lanzout.com/b00tn2sha](https://ajk.lanzout.com/b00tn2sha)
 
 软件列表（按软件名首字母归类）：
-GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
-
+GitHub：
+###
 TG频道及群组：
-Telegram频道：https://t.me/haoruanfenxiang
+Telegram频道：[https://t.me/ajk_app](https://t.me/ajk_app)
 
-Telegram群组：https://t.me/haoruanfenxianggroup
+Telegram群组：[https://t.me/ajk_jiaoliu](https://t.me/ajk_jiaoliu)
 
 说明：
 注1：蓝奏链接里的版本是最全的，因为蓝奏文件大小限制问题，最大只能分享100MB的文件，超过100MB的，我会转到字节网盘或者123云盘分享，并将分享链接以txt形式分享在蓝奏里。
