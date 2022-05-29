@@ -9,7 +9,7 @@ GitHub：[https://github.com/ajklpl/APPchangku](https://github.com/ajklpl/APPcha
 GitHub：
 https://github.com/ajklpl/APPchangku/blob/main/LB.md
 
-[影视](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%BD%B1%E8%A7%86)
+点击文字直到分类：[影视](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%BD%B1%E8%A7%86)
 
 ## TG频道及群组：
 
