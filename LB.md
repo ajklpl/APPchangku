@@ -211,12 +211,19 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
    ## 音乐
    ## 漫画
+52漫画：https://ajk.lanzout.com/b00vptfri 密码:4h3l
+   
    ## 工具
    ##  T V
    ## 办公
    ## 视频工具
    ## P S 工具
+美颜相机： https://ajk.lanzout.com/b00tpl9vg
+
+
    ## 分身定位
+ 悟空分身：https://ajk.lanzout.com/b00tro8pe
+ 
    ## 生活应用
    ## 磁力工具
    ## 番茄工具
