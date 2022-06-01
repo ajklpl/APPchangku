@@ -210,9 +210,16 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 好猫影视：https://ajk.lanzout.com/b00u6qgkj
 
    ## 音乐
+   酷我音乐： https://url74.ctfile.com/f/28870574-587787792-0d96c8?p=1110 (访问密码: 1110)
+
    ## 漫画
 52漫画：https://ajk.lanzout.com/b00vptfri 密码:4h3l
-   
+   ## 小说
+随梦小说：https://ajk.lanzout.com/b00vq1ued  密码:bxcp
+
+七猫免费小说：https://ajk.lanzout.com/b00tp22ba
+
+七读免费小说：https://ajk.lanzout.com/b00vkoh0d 密码:82bv
    ## 工具
    ##  T V
    ## 办公
