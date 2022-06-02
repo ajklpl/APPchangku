@@ -5,7 +5,10 @@ GitHub：[https://github.com/ajklpl/APPchangku](https://github.com/ajklpl/APPcha
 仓库与蓝奏云非最全资源，最全资源都在TG里。欢迎关注微信公众号：APP绿化君
 
 ## 下载地址（按更新时间倒序排列）：
-蓝奏主页：[https://ajk.lanzout.com/b00tn2sha](https://ajk.lanzout.com/b00tn2sha)
+
+诚通网盘: https://url74.ctfile.com/d/28870574-49023952-f6391a?p=1110  (访问密码: 1110)（能用就用这个，感谢）
+
+蓝奏网盘：[https://ajk.lanzout.com/b00tn2sha](https://ajk.lanzout.com/b00tn2sha)
 
 ## 软件列表（按软件分类）：
 GitHub：
@@ -14,9 +17,6 @@ https://github.com/ajklpl/APPchangku/blob/main/LB.md
 点击文字直到分类：[影视](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%BD%B1%E8%A7%86)   [音乐](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E9%9F%B3%E4%B9%90) [漫画](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E6%BC%AB%E7%94%BB)
 [TV](https://github.com/ajklpl/APPchangku/blob/main/LB.md#t-v)  [办公](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%8A%9E%E5%85%AC) [视频工具](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E8%A7%86%E9%A2%91%E5%B7%A5%E5%85%B7) [PS工具](https://github.com/ajklpl/APPchangku/blob/main/LB.md#p-s-%E5%B7%A5%E5%85%B7) [分身定位](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%88%86%E8%BA%AB%E5%AE%9A%E4%BD%8D) [生活应用](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E7%94%9F%E6%B4%BB%E5%BA%94%E7%94%A8) [磁力工具](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E7%A3%81%E5%8A%9B%E5%B7%A5%E5%85%B7) [番茄工具](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E7%95%AA%E8%8C%84%E5%B7%A5%E5%85%B7)
 
-## 部分更新地址
-
-最新列表: https://url74.ctfile.com/d/28870574-49023952-f6391a?p=1110 (访问密码: 1110)
 
 ## TG频道及群组：
 
