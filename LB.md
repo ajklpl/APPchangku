@@ -222,11 +222,25 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 七读免费小说：https://ajk.lanzout.com/b00vkoh0d 密码:82bv
    ## 工具
    ##  T V
+   水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
+   
+   小書视界TV: https://ajk.lanzout.com/b00vq8sod 密码:4i94
+   
+   优酷TV：https://ajk.lanzout.com/b00vq8ssh 密码:3kfx
+   
+   小苹果影视TV：https://ajk.lanzout.com/b00vq8s7g 密码:94ey
+   
+   奇异直播：https://ajk.lanzout.com/b00vq8usj 密码:9t9o
+   
    ## 办公
    ## 视频工具
+   剪映：https://ajk.lanzout.com/b00ufybxe
    ## P S 工具
 美颜相机： https://ajk.lanzout.com/b00tpl9vg
 
+照片时光机：https://ajk.lanzout.com/b00vq8q3a 密码:9dhp
+
+醒图：https://ajk.lanzout.com/b00vq8syd 密码:176p
 
    ## 分身定位
  悟空分身：https://ajk.lanzout.com/b00tro8pe
