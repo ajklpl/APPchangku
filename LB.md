@@ -214,13 +214,26 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
    ## 漫画
 52漫画：https://ajk.lanzout.com/b00vptfri 密码:4h3l
+
    ## 小说
 随梦小说：https://ajk.lanzout.com/b00vq1ued  密码:bxcp
 
 七猫免费小说：https://ajk.lanzout.com/b00tp22ba
 
 七读免费小说：https://ajk.lanzout.com/b00vkoh0d 密码:82bv
+
+塔读小说：https://ajk.lanzout.com/b00txzb3c
+
+得间小说：https://ajk.lanzout.com/b00vqq2lc 密码:du96
+
+   ## 壁纸
+安卓壁纸：https://ajk.lanzout.com/b00tpctgh
+
    ## 工具
+   连点器：https://ajk.lanzout.com/b00vqq2yf 密码:98eb
+   
+   青果特效变声器：https://ajk.lanzout.com/b00vkjd1a 密码:2bah
+   
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
    
@@ -233,8 +246,13 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
    奇异直播：https://ajk.lanzout.com/b00vq8usj 密码:9t9o
    
    ## 办公
+   麻雀记：https://ajk.lanzout.com/b00uxmvda 密码:538i
+   
    ## 视频工具
    剪映：https://ajk.lanzout.com/b00ufybxe
+   
+   快影：https://ajk.lanzout.com/b00vju29c 密码:9ni1
+   
    ## P S 工具
 美颜相机： https://ajk.lanzout.com/b00tpl9vg
 
