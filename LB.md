@@ -209,11 +209,16 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 好猫影视：https://ajk.lanzout.com/b00u6qgkj
 
+海阔视界：https://ajk.lanzout.com/b00tslmbc
+
    ## 音乐
-   酷我音乐： https://url74.ctfile.com/f/28870574-587787792-0d96c8?p=1110 (访问密码: 1110)
+酷我音乐: https://url74.ctfile.com/d/28870574-40281515-91e629?p=1110 (访问密码: 1110)
+
 
    ## 漫画
 52漫画：https://ajk.lanzout.com/b00vptfri 密码:4h3l
+
+漫画新社：https://ajk.lanzout.com/b00vqty0b 密码:5vbc
 
    ## 小说
 随梦小说：https://ajk.lanzout.com/b00vq1ued  密码:bxcp
@@ -244,6 +249,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
    小苹果影视TV：https://ajk.lanzout.com/b00vq8s7g 密码:94ey
    
    奇异直播：https://ajk.lanzout.com/b00vq8usj 密码:9t9o
+   
+   饭团影院TV：https://ajk.lanzout.com/b00vdzfje 密码:f23x
    
    ## 办公
    麻雀记：https://ajk.lanzout.com/b00uxmvda 密码:538i
