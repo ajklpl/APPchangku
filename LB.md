@@ -231,8 +231,15 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 得间小说：https://ajk.lanzout.com/b00vqq2lc 密码:du96
 
+墨水阅读：https://ajk.lanzout.com/b00vqyzxa 密码:a9ff
+
+番茄免费小说：https://ajk.lanzout.com/b00ttoexa
+
    ## 壁纸
 安卓壁纸：https://ajk.lanzout.com/b00tpctgh
+
+pixiv：https://ajk.lanzout.com/b00toay0d
+
 
    ## 工具
    连点器：https://ajk.lanzout.com/b00vqq2yf 密码:98eb
@@ -240,6 +247,16 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
    青果特效变声器：https://ajk.lanzout.com/b00vkjd1a 密码:2bah
    
    开发助手：https://ajk.lanzout.com/b00tsw3jc
+   
+   Ampere（充电评测）：https://ajk.lanzout.com/b00trh66b
+   
+   Speedtest（网络测速）：https://ajk.lanzout.com/b00tslgdi
+   
+   SD Maid /SD女佣：https://ajk.lanzout.com/b00tsym6f
+   
+   APKPure ：https://ajk.lanzout.com/b00ttcorc
+   
+   宇宙工具箱：https://ajk.lanzout.com/b00vg57rc 密码:2o3p
    
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
@@ -262,6 +279,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
    
    快影：https://ajk.lanzout.com/b00vju29c 密码:9ni1
    
+   哔哩下载姬：https://ajk.lanzout.com/b00vqz4re 密码:az3k  （PC）
+   
    ## P S 工具
 美颜相机： https://ajk.lanzout.com/b00tpl9vg
 
@@ -269,10 +288,16 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 醒图：https://ajk.lanzout.com/b00vq8syd 密码:176p
 
+Koloro（滤镜君）：https://ajk.lanzout.com/b00tpzw0h
+
+泼辣修图：https://ajk.lanzout.com/b00tq280b
+
    ## 分身定位
  悟空分身：https://ajk.lanzout.com/b00tro8pe
  
-   ## 生活应用
+   ## 生活应用||娱乐应用
+  恋爱话术库：https://ajk.lanzout.com/b00vqyz0h 密码:3jbe
+  
    ## 磁力工具
    ## 番茄工具
 小羽：
