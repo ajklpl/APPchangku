@@ -235,6 +235,10 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 番茄免费小说：https://ajk.lanzout.com/b00ttoexa
 
+免费追书：https://ajk.lanzout.com/b00twnhwj
+
+皮皮阅读：https://ajk.lanzout.com/b00ussasf 密码:g6rl
+
    ## 壁纸
 安卓壁纸：https://ajk.lanzout.com/b00tpctgh
 
@@ -277,6 +281,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    ## 办公
    麻雀记：https://ajk.lanzout.com/b00uxmvda 密码:538i
+   
+   极简日记：https://ajk.lanzout.com/b00vr2dmb 密码:5ru0
    
    ## 视频工具
    剪映：https://ajk.lanzout.com/b00ufybxe
