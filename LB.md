@@ -271,6 +271,10 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    饭团影院TV：https://ajk.lanzout.com/b00vdzfje 密码:f23x
    
+   极光影视TV：https://ajk.lanzout.com/b00tu31mb
+   
+   坚果TV：https://ajk.lanzout.com/b00vr2a4f 密码:gycu
+   
    ## 办公
    麻雀记：https://ajk.lanzout.com/b00uxmvda 密码:538i
    
@@ -299,6 +303,8 @@ Koloro（滤镜君）：https://ajk.lanzout.com/b00tpzw0h
   恋爱话术库：https://ajk.lanzout.com/b00vqyz0h 密码:3jbe
   
    ## 磁力工具
+   种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u‘
+   
    ## 番茄工具
 小羽：
 
