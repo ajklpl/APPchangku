@@ -220,6 +220,16 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 漫画新社：https://ajk.lanzout.com/b00vqty0b 密码:5vbc
 
+触动漫画：https://ajk.lanzout.com/b00vr6f1g 密码:d4y8
+
+看漫画：https://ajk.lanzout.com/b00tp4b3i
+
+知音漫客：https://ajk.lanzout.com/b00tpcqzi
+
+扑飞动漫：https://ajk.lanzout.com/b00tqnvoj
+
+扑飞漫画：https://ajk.lanzout.com/b00trq8xe
+
    ## 小说
 随梦小说：https://ajk.lanzout.com/b00vq1ued  密码:bxcp
 
@@ -262,6 +272,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    宇宙工具箱：https://ajk.lanzout.com/b00vg57rc 密码:2o3p
    
+   AndPods：https://ajk.lanzout.com/b00trrtgj  （蓝牙弹窗）
+   
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
    
@@ -302,11 +314,19 @@ Koloro（滤镜君）：https://ajk.lanzout.com/b00tpzw0h
 
 泼辣修图：https://ajk.lanzout.com/b00tq280b
 
+照片编辑器：https://ajk.lanzout.com/b00tsrz9e
+
+轻颜相机：https://ajk.lanzout.com/b00ts4wuj
+
    ## 分身定位
  悟空分身：https://ajk.lanzout.com/b00tro8pe
  
+ 多开分身：https://ajk.lanzout.com/b00vr6hgd 密码:419u
+ 
    ## 生活应用||娱乐应用
   恋爱话术库：https://ajk.lanzout.com/b00vqyz0h 密码:3jbe
+  
+  皮皮虾：https://ajk.lanzout.com/b00tpi0qj
   
    ## 磁力工具
    种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u‘
