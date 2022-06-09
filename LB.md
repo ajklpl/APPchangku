@@ -230,6 +230,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 扑飞漫画：https://ajk.lanzout.com/b00trq8xe
 
+动漫之家：https://ajk.lanzout.com/b00tri5je
+
    ## 小说
 随梦小说：https://ajk.lanzout.com/b00vq1ued  密码:bxcp
 
@@ -249,10 +251,16 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 皮皮阅读：https://ajk.lanzout.com/b00ussasf 密码:g6rl
 
+掌读小说：https://ajk.lanzout.com/b00vr9rpa 密码:evlf
+
+静读天下：https://ajk.lanzout.com/b00trt79c
+
    ## 壁纸
 安卓壁纸：https://ajk.lanzout.com/b00tpctgh
 
 pixiv：https://ajk.lanzout.com/b00toay0d
+
+堆糖：https://ajk.lanzout.com/b00tsgqpa
 
 
    ## 工具
@@ -273,6 +281,10 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    宇宙工具箱：https://ajk.lanzout.com/b00vg57rc 密码:2o3p
    
    AndPods：https://ajk.lanzout.com/b00trrtgj  （蓝牙弹窗）
+   
+   音频裁剪大师：https://ajk.lanzout.com/b00tqyzgb
+   
+   贝利自动点击器：https://ajk.lanzout.com/b00vda9mb 密码:gwwe
    
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
@@ -303,6 +315,11 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    哔哩下载姬：https://ajk.lanzout.com/b00vqz4re 密码:az3k  （PC）
    
+   简影：https://ajk.lanzout.com/b00ts0zqj
+   
+   小熊录屏：https://ajk.lanzout.com/b00tp48pc
+  
+   
    ## P S 工具
 美颜相机： https://ajk.lanzout.com/b00tpl9vg
 
@@ -318,6 +335,8 @@ Koloro（滤镜君）：https://ajk.lanzout.com/b00tpzw0h
 
 轻颜相机：https://ajk.lanzout.com/b00ts4wuj
 
+傲软抠图：https://ajk.lanzout.com/b00tr4fja
+
    ## 分身定位
  悟空分身：https://ajk.lanzout.com/b00tro8pe
  
@@ -327,6 +346,8 @@ Koloro（滤镜君）：https://ajk.lanzout.com/b00tpzw0h
   恋爱话术库：https://ajk.lanzout.com/b00vqyz0h 密码:3jbe
   
   皮皮虾：https://ajk.lanzout.com/b00tpi0qj
+  
+  最右：https://ajk.lanzout.com/b00tos1ve
   
    ## 磁力工具
    种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u‘
