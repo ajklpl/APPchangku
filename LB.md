@@ -255,6 +255,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 静读天下：https://ajk.lanzout.com/b00trt79c
 
+喜马拉雅:https://ajk.lanzout.com/b00tr0jfg
+
    ## 壁纸
 安卓壁纸：https://ajk.lanzout.com/b00tpctgh
 
@@ -312,6 +314,10 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    一起看TV: https://ajk.lanzout.com/b00vrmzsj 密码:a9qf
    
    小鲸电视: https://ajk.lanzout.com/b00vrmzhi 密码:hwmc
+   
+   火星直播:https://ajk.lanzout.com/b00tr1def
+   
+   特狗TV:https://ajk.lanzout.com/b00vrn4kb 密码:ai5w
    
    ## 办公
    麻雀记：https://ajk.lanzout.com/b00uxmvda 密码:538i
