@@ -286,6 +286,10 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    贝利自动点击器：https://ajk.lanzout.com/b00vda9mb 密码:gwwe
    
+   自动点击器:https://ajk.lanzout.com/b00tvmucf
+   
+   Anti-recall（防撤回神器）:https://ajk.lanzout.com/b00vrmxaj 密码:8kvo
+   
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
    
@@ -302,6 +306,12 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    极光影视TV：https://ajk.lanzout.com/b00tu31mb
    
    坚果TV：https://ajk.lanzout.com/b00vr2a4f 密码:gycu
+   
+   饭堂影院TV: https://ajk.lanzout.com/b00vrmzmd 密码:2h9a
+   
+   一起看TV: https://ajk.lanzout.com/b00vrmzsj 密码:a9qf
+   
+   小鲸电视: https://ajk.lanzout.com/b00vrmzhi 密码:hwmc
    
    ## 办公
    麻雀记：https://ajk.lanzout.com/b00uxmvda 密码:538i
@@ -337,10 +347,16 @@ Koloro（滤镜君）：https://ajk.lanzout.com/b00tpzw0h
 
 傲软抠图：https://ajk.lanzout.com/b00tr4fja
 
+去水印吧:https://ajk.lanzout.com/b00va0y6h 密码:hs1k
+
+FIMO:https://ajk.lanzout.com/b00tu0vta
+
    ## 分身定位
  悟空分身：https://ajk.lanzout.com/b00tro8pe
  
  多开分身：https://ajk.lanzout.com/b00vr6hgd 密码:419u
+ 
+ 小X分身:https://ajk.lanzout.com/b00vefb8f 密码:2i7k
  
    ## 生活应用||娱乐应用
   恋爱话术库：https://ajk.lanzout.com/b00vqyz0h 密码:3jbe
@@ -348,6 +364,14 @@ Koloro（滤镜君）：https://ajk.lanzout.com/b00tpzw0h
   皮皮虾：https://ajk.lanzout.com/b00tpi0qj
   
   最右：https://ajk.lanzout.com/b00tos1ve
+  
+  微博国际版:https://ajk.lanzout.com/b00tph79i
+  
+  ZAKER新闻:https://ajk.lanzout.com/b00tutzkj
+  
+  See微博:https://ajk.lanzout.com/b00tvqiej
+  
+  小米白噪音:https://ajk.lanzout.com/b00vrmvqd 密码:9ifc
   
    ## 磁力工具
    种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u‘
