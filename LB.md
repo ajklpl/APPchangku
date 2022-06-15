@@ -214,6 +214,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
    ## 音乐
 酷我音乐: https://url74.ctfile.com/d/28870574-40281515-91e629?p=1110 (访问密码: 1110)
 
+魔音MORIN:https://ajk.lanzout.com/b00tss0de
+
 
    ## 漫画
 52漫画：https://ajk.lanzout.com/b00vptfri 密码:4h3l
@@ -257,6 +259,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 喜马拉雅:https://ajk.lanzout.com/b00tr0jfg
 
+海豚之音:https://ajk.lanzout.com/b00ubwxeb
+
    ## 壁纸
 安卓壁纸：https://ajk.lanzout.com/b00tpctgh
 
@@ -264,6 +268,7 @@ pixiv：https://ajk.lanzout.com/b00toay0d
 
 堆糖：https://ajk.lanzout.com/b00tsgqpa
 
+搜图神器:https://ajk.lanzout.com/b00tuk49i
 
    ## 工具
    连点器：https://ajk.lanzout.com/b00vqq2yf 密码:98eb
@@ -324,6 +329,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    极简日记：https://ajk.lanzout.com/b00vr2dmb 密码:5ru0
    
+   CAD看图王:https://ajk.lanzout.com/b00tp0ukf
+   
    ## 视频工具
    剪映：https://ajk.lanzout.com/b00ufybxe
    
@@ -335,6 +342,13 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    小熊录屏：https://ajk.lanzout.com/b00tp48pc
   
+   VivaCut:https://ajk.lanzout.com/b00tpb1xa
+   
+   视频MD:https://ajk.lanzout.com/b00vd2s9e 密码:aqio
+   
+   爱剪辑:https://ajk.lanzout.com/b00tmpjyf
+   
+   爱剪辑视频编辑:https://ajk.lanzout.com/b00trtxaj
    
    ## P S 工具
 美颜相机： https://ajk.lanzout.com/b00tpl9vg
@@ -364,6 +378,10 @@ FIMO:https://ajk.lanzout.com/b00tu0vta
  
  小X分身:https://ajk.lanzout.com/b00vefb8f 密码:2i7k
  
+ 分身有术Pro:https://ajk.lanzout.com/b00tos81g
+ 
+ 小鹏定位助手:https://ajk.lanzout.com/b00trt1ah
+ 
    ## 生活应用||娱乐应用
   恋爱话术库：https://ajk.lanzout.com/b00vqyz0h 密码:3jbe
   
@@ -389,3 +407,4 @@ FIMO:https://ajk.lanzout.com/b00tu0vta
 
 下载地址2: https://ajk.lanzout.com/b00vptvyb 密码:2bf6
 
+小牛:https://ajk.lanzout.com/b00ve78ij 密码:26j1
