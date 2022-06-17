@@ -297,6 +297,14 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    Anti-recall（防撤回神器）:https://ajk.lanzout.com/b00vrmxaj 密码:8kvo
    
+   Cellular-Z :https://ajk.lanzout.com/b00vs7jmd 密码:50ev
+   
+   Cellular Pro :https://ajk.lanzout.com/b00tte2di
+   
+   彩云天气:https://ajk.lanzout.com/b00tu08xg
+   
+   墨迹天气:https://ajk.lanzout.com/b00troevg
+   
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
    
@@ -324,6 +332,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    特狗TV:https://ajk.lanzout.com/b00vrn4kb 密码:ai5w
    
+   电视家:https://ajk.lanzout.com/b00trrfrg
+   
    ## 办公
    麻雀记：https://ajk.lanzout.com/b00uxmvda 密码:538i
    
@@ -350,6 +360,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    爱剪辑视频编辑:https://ajk.lanzout.com/b00trtxaj
    
+   格式工厂:https://ajk.lanzout.com/b00tuagsj
+   
    ## P S 工具
 美颜相机： https://ajk.lanzout.com/b00tpl9vg
 
@@ -372,7 +384,7 @@ Koloro（滤镜君）：https://ajk.lanzout.com/b00tpzw0h
 FIMO:https://ajk.lanzout.com/b00tu0vta
 
    ## 分身定位
- 悟空分身：https://ajk.lanzout.com/b00tro8pe
+ 悟空分身/猴子分身：https://ajk.lanzout.com/b00tro8pe
  
  多开分身：https://ajk.lanzout.com/b00vr6hgd 密码:419u
  
@@ -396,6 +408,8 @@ FIMO:https://ajk.lanzout.com/b00tu0vta
   See微博:https://ajk.lanzout.com/b00tvqiej
   
   小米白噪音:https://ajk.lanzout.com/b00vrmvqd 密码:9ifc
+  
+  HelloTalk: https://ajk.lanzout.com/b00tq3aqf
   
    ## 磁力工具
    种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u‘
