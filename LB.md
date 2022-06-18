@@ -211,6 +211,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 海阔视界：https://ajk.lanzout.com/b00tslmbc
 
+点点搜影：https://ajk.lanzout.com/b00vsedna 密码:5opt
+
    ## 音乐
 酷我音乐: https://url74.ctfile.com/d/28870574-40281515-91e629?p=1110 (访问密码: 1110)
 
@@ -233,6 +235,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 扑飞漫画：https://ajk.lanzout.com/b00trq8xe
 
 动漫之家：https://ajk.lanzout.com/b00tri5je
+
+36漫画：https://ajk.lanzout.com/b00twbjna
 
    ## 小说
 随梦小说：https://ajk.lanzout.com/b00vq1ued  密码:bxcp
@@ -270,6 +274,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
 
 搜图神器:https://ajk.lanzout.com/b00tuk49i
 
+糖图壁纸：https://ajk.lanzout.com/b00vsecpg 密码:gmdd
+
    ## 工具
    连点器：https://ajk.lanzout.com/b00vqq2yf 密码:98eb
    
@@ -296,6 +302,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    自动点击器:https://ajk.lanzout.com/b00tvmucf
    
    Anti-recall（防撤回神器）:https://ajk.lanzout.com/b00vrmxaj 密码:8kvo
+   
+   资源大师：https://ajk.lanzout.com/b00vsefpe 密码:6rxb
    
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
