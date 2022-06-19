@@ -238,6 +238,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 36漫画：https://ajk.lanzout.com/b00twbjna
 
+风车动漫：https://ajk.lanzout.com/b00ur1v3i 密码:2uvu
+
    ## 小说
 随梦小说：https://ajk.lanzout.com/b00vq1ued  密码:bxcp
 
@@ -391,6 +393,8 @@ Koloro（滤镜君）：https://ajk.lanzout.com/b00tpzw0h
 去水印吧:https://ajk.lanzout.com/b00va0y6h 密码:hs1k
 
 FIMO:https://ajk.lanzout.com/b00tu0vta
+
+ProCCD复古CCD相机：https://ajk.lanzout.com/b00vshumj 密码:7ynk
 
    ## 分身定位
  悟空分身/猴子分身：https://ajk.lanzout.com/b00tro8pe
