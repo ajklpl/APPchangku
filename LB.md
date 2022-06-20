@@ -77,7 +77,7 @@
 
 海阔视界：https://ajk.lanzout.com/b00tslmbc
 
-星空影视：https://ajk.lanzout.com/b00u74pre （密码:bri5）
+星空影视/星空视频：https://ajk.lanzout.com/b00u74pre （密码:bri5）
 
 青椒影视 (原斑马影视)：https://ajk.lanzout.com/b00tpq9sd
 
@@ -111,7 +111,7 @@ Nemo：https://ajk.lanzout.com/b00tpxyuh
 
 嘀嘀动漫：https://ajk.lanzout.com/b00u0dj7a
 
-大海影视：https://ajk.lanzout.com/b00u8bted
+大海影视/大海视频：https://ajk.lanzout.com/b00u8bted
 
 抖音TikTok （海外版）：https://ajk.lanzout.com/b00tuy1af
 
@@ -213,10 +213,14 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 点点搜影：https://ajk.lanzout.com/b00vsedna 密码:5opt
 
+蓝狐视频/蓝狐影视：https://ajk.lanzout.com/b00u9fu7c
+
    ## 音乐
 酷我音乐: https://url74.ctfile.com/d/28870574-40281515-91e629?p=1110 (访问密码: 1110)
 
 魔音MORIN:https://ajk.lanzout.com/b00tss0de
+
+DJ多多:https://ajk.lanzout.com/b00trub9c
 
 
    ## 漫画
@@ -239,6 +243,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 36漫画：https://ajk.lanzout.com/b00twbjna
 
 风车动漫：https://ajk.lanzout.com/b00ur1v3i 密码:2uvu
+
+火星漫画：https://ajk.lanzout.com/b00trsurc
 
    ## 小说
 随梦小说：https://ajk.lanzout.com/b00vq1ued  密码:bxcp
@@ -266,6 +272,10 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 喜马拉雅:https://ajk.lanzout.com/b00tr0jfg
 
 海豚之音:https://ajk.lanzout.com/b00ubwxeb
+
+蜜蜂追书:https://ajk.lanzout.com/b00vsloaf 密码:c5hu
+
+饭团看书/饭团探书/饭团看书Pro:https://ajk.lanzout.com/b00tpla4f
 
    ## 壁纸
 安卓壁纸：https://ajk.lanzout.com/b00tpctgh
@@ -341,9 +351,11 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    火星直播:https://ajk.lanzout.com/b00tr1def
    
-   特狗TV:https://ajk.lanzout.com/b00vrn4kb 密码:ai5w
+   特狗TV: https://ajk.lanzout.com/b00vrn4kb 密码:ai5w
    
    电视家:https://ajk.lanzout.com/b00trrfrg
+   
+   柚子TV: https://ajk.lanzout.com/b00vslorc 密码:h731
    
    ## 办公
    麻雀记：https://ajk.lanzout.com/b00uxmvda 密码:538i
@@ -351,6 +363,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    极简日记：https://ajk.lanzout.com/b00vr2dmb 密码:5ru0
    
    CAD看图王:https://ajk.lanzout.com/b00tp0ukf
+   
+   迅捷PDF转换器:https://ajk.lanzout.com/b00ts11mh
    
    ## 视频工具
    剪映：https://ajk.lanzout.com/b00ufybxe
@@ -396,6 +410,8 @@ FIMO:https://ajk.lanzout.com/b00tu0vta
 
 ProCCD复古CCD相机：https://ajk.lanzout.com/b00vshumj 密码:7ynk
 
+水印狗:https://ajk.lanzout.com/b00v8gqna 密码:cl2j
+
    ## 分身定位
  悟空分身/猴子分身：https://ajk.lanzout.com/b00tro8pe
  
@@ -423,6 +439,8 @@ ProCCD复古CCD相机：https://ajk.lanzout.com/b00vshumj 密码:7ynk
   小米白噪音:https://ajk.lanzout.com/b00vrmvqd 密码:9ifc
   
   HelloTalk: https://ajk.lanzout.com/b00tq3aqf
+  
+  IT之家：https://ajk.lanzout.com/b00tprv9c
   
    ## 磁力工具
    种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u‘
