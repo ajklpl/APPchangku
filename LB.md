@@ -117,7 +117,7 @@ Nemo：https://ajk.lanzout.com/b00tpxyuh
 
 番茄影视：https://ajk.lanzout.com/b00tqu20d
 
-heibai弹幕：https://ajk.lanzout.com/b00tsgdzc
+heibai弹幕/黑白弹幕：https://ajk.lanzout.com/b00tsgdzc
 
 美剧鸟：https://ajk.lanzout.com/b00tw53ej
 
@@ -214,6 +214,8 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 点点搜影：https://ajk.lanzout.com/b00vsedna 密码:5opt
 
 蓝狐视频/蓝狐影视：https://ajk.lanzout.com/b00u9fu7c
+
+哆哆美剧:https://ajk.lanzout.com/b00vsq50b 密码:hm3i
 
    ## 音乐
 酷我音乐: https://url74.ctfile.com/d/28870574-40281515-91e629?p=1110 (访问密码: 1110)
@@ -326,6 +328,10 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    资源大师：https://ajk.lanzout.com/b00vsefpe 密码:6rxb
    
+   变声器大师：https://ajk.lanzout.com/b00tp48uh
+   
+   微痕迹数据导出精灵：https://ajk.lanzout.com/b00vsq8ba 密码:c524
+   
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
    
@@ -365,6 +371,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    CAD看图王:https://ajk.lanzout.com/b00tp0ukf
    
    迅捷PDF转换器:https://ajk.lanzout.com/b00ts11mh
+   
+   MindMaster思维导图:https://ajk.lanzout.com/b00tv3baf
    
    ## 视频工具
    剪映：https://ajk.lanzout.com/b00ufybxe
@@ -443,7 +451,9 @@ ProCCD复古CCD相机：https://ajk.lanzout.com/b00vshumj 密码:7ynk
   IT之家：https://ajk.lanzout.com/b00tprv9c
   
    ## 磁力工具
-   种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u‘
+   种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u
+   
+   闪电下载：https://ajk.lanzout.com/b00tr25kj
    
    ## 番茄工具
 小羽：
@@ -453,3 +463,5 @@ ProCCD复古CCD相机：https://ajk.lanzout.com/b00vshumj 密码:7ynk
 下载地址2: https://ajk.lanzout.com/b00vptvyb 密码:2bf6
 
 小牛:https://ajk.lanzout.com/b00ve78ij 密码:26j1
+
+旋风加速器：https://ajk.lanzout.com/b00tu5tmb
