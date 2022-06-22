@@ -332,6 +332,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    微痕迹数据导出精灵：https://ajk.lanzout.com/b00vsq8ba 密码:c524
    
+   微拾：https://ajk.lanzout.com/b00u5bqra
+   
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
    
@@ -395,6 +397,14 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    格式工厂:https://ajk.lanzout.com/b00tuagsj
    
+   爱字幕滚动字幕：https://ajk.lanzout.com/b00tufa7c
+   
+   酷影视频剪辑：https://ajk.lanzout.com/b00vsun7a 密码:d11e
+   
+   手绘视频制作：https://ajk.lanzout.com/b00vsuoze 密码:atcn
+   
+   滚动字幕动画：
+   
    ## P S 工具
 美颜相机： https://ajk.lanzout.com/b00tpl9vg
 
@@ -419,6 +429,8 @@ FIMO:https://ajk.lanzout.com/b00tu0vta
 ProCCD复古CCD相机：https://ajk.lanzout.com/b00vshumj 密码:7ynk
 
 水印狗:https://ajk.lanzout.com/b00v8gqna 密码:cl2j
+
+隐秘相机：https://ajk.lanzout.com/b00tsalla
 
    ## 分身定位
  悟空分身/猴子分身：https://ajk.lanzout.com/b00tro8pe
@@ -449,6 +461,10 @@ ProCCD复古CCD相机：https://ajk.lanzout.com/b00vshumj 密码:7ynk
   HelloTalk: https://ajk.lanzout.com/b00tq3aqf
   
   IT之家：https://ajk.lanzout.com/b00tprv9c
+  
+  Now冥想：https://ajk.lanzout.com/b00tos7ih
+  
+  熊猫绘画：https://ajk.lanzout.com/b00usfhta 密码:28l3
   
    ## 磁力工具
    种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u
