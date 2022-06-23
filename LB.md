@@ -232,7 +232,7 @@ DJ多多:https://ajk.lanzout.com/b00trub9c
 
 触动漫画：https://ajk.lanzout.com/b00vr6f1g 密码:d4y8
 
-看漫画：https://ajk.lanzout.com/b00tp4b3i
+看漫画/看漫：https://ajk.lanzout.com/b00tp4b3i
 
 知音漫客：https://ajk.lanzout.com/b00tpcqzi
 
@@ -376,6 +376,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    MindMaster思维导图:https://ajk.lanzout.com/b00tv3baf
    
+   洋果扫描王：https://ajk.lanzout.com/b00vsyire 密码:27e6
+   
    ## 视频工具
    剪映：https://ajk.lanzout.com/b00ufybxe
    
@@ -431,6 +433,8 @@ ProCCD复古CCD相机：https://ajk.lanzout.com/b00vshumj 密码:7ynk
 水印狗:https://ajk.lanzout.com/b00v8gqna 密码:cl2j
 
 隐秘相机：https://ajk.lanzout.com/b00tsalla
+
+长图拼接大师：https://ajk.lanzout.com/b00trt5md
 
    ## 分身定位
  悟空分身/猴子分身：https://ajk.lanzout.com/b00tro8pe
