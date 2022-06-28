@@ -217,6 +217,14 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 
 哆哆美剧:https://ajk.lanzout.com/b00vsq50b 密码:hm3i
 
+斑马视频/斑马影视：https://ajk.lanzout.com/b00tpqq4b
+
+河马视频/河马影视：https://ajk.lanzout.com/b00twyoid
+
+橘子视频：https://ajk.lanzout.com/b00vduyti 密码:ac1x
+
+
+
    ## 音乐
 酷我音乐: https://url74.ctfile.com/d/28870574-40281515-91e629?p=1110 (访问密码: 1110)
 
@@ -334,6 +342,10 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    微拾：https://ajk.lanzout.com/b00u5bqra
    
+   安卓清理君：https://ajk.lanzout.com/b00tzejkd
+   
+   PodsTool：https://ajk.lanzout.com/b00uu8rbc 密码:3lef
+   
    ##  T V
    水星TV： https://ajk.lanzout.com/b00vq8scb 密码:fos9
    
@@ -407,6 +419,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    
    滚动字幕动画：
    
+   乐播投屏：https://ajk.lanzout.com/b00ts5lsh
+   
    ## P S 工具
 美颜相机： https://ajk.lanzout.com/b00tpl9vg
 
@@ -435,6 +449,10 @@ ProCCD复古CCD相机：https://ajk.lanzout.com/b00vshumj 密码:7ynk
 隐秘相机：https://ajk.lanzout.com/b00tsalla
 
 长图拼接大师：https://ajk.lanzout.com/b00trt5md
+
+GIF助手：https://ajk.lanzout.com/b00tpzumh
+
+头像制作：https://ajk.lanzout.com/b00vthb6f 密码:8wj7
 
    ## 分身定位
  悟空分身/猴子分身：https://ajk.lanzout.com/b00tro8pe
