@@ -224,7 +224,6 @@ AGE动漫：https://ajk.lanzout.com/b00tzufid
 橘子视频：https://ajk.lanzout.com/b00vduyti 密码:ac1x
 
 
-
    ## 音乐
 酷我音乐: https://url74.ctfile.com/d/28870574-40281515-91e629?p=1110 (访问密码: 1110)
 
@@ -286,6 +285,8 @@ DJ多多:https://ajk.lanzout.com/b00trub9c
 蜜蜂追书:https://ajk.lanzout.com/b00vsloaf 密码:c5hu
 
 饭团看书/饭团探书/饭团看书Pro:https://ajk.lanzout.com/b00tpla4f
+
+搜书大师：https://ajk.lanzout.com/b00tqi5aj
 
    ## 壁纸
 安卓壁纸：https://ajk.lanzout.com/b00tpctgh
@@ -376,6 +377,8 @@ pixiv：https://ajk.lanzout.com/b00toay0d
    电视家:https://ajk.lanzout.com/b00trrfrg
    
    柚子TV: https://ajk.lanzout.com/b00vslorc 密码:h731
+   
+   飞扬TV：https://ajk.lanzout.com/b00vtkysd 密码:5ms0
    
    ## 办公
    麻雀记：https://ajk.lanzout.com/b00uxmvda 密码:538i
@@ -487,6 +490,8 @@ GIF助手：https://ajk.lanzout.com/b00tpzumh
   Now冥想：https://ajk.lanzout.com/b00tos7ih
   
   熊猫绘画：https://ajk.lanzout.com/b00usfhta 密码:28l3
+  
+  私人健身教练：https://ajk.lanzout.com/b00truiyj
   
    ## 磁力工具
    种子磁力下载器：https://ajk.lanzout.com/b00vexb3i 密码:gw2u
