@@ -6,21 +6,29 @@ GitHub：[https://github.com/ajklpl/APPchangku](https://github.com/ajklpl/APPcha
 
 ## 下载地址（按更新时间倒序排列）：
 
-网站：www.applnn.cc(https://www.applnn.cc)
+网站：www.applnn.cc
 
 ## 软件列表（按软件分类）：
 1.更新网站： 
-https://www.applnn.cc/ （https://www.applnn.cc/ ）
+https://www.applnn.cc/ 
 2.TV软件地址： 
-https://www.applnn.cc/tv （https://www.applnn.cc/tv ）
-3.科网软件地址：https://www.applnn.cc/tag/科网 (https://www.applnn.cc/tag/科网 )
-4.你懂的软件地址：https://www.applnn.cc/tag/你懂的(https://www.applnn.cc/tag/你懂的)
-5.影视软件地址：https://www.applnn.cc/tag/影视 (https://www.applnn.cc/tag/影视)
-6.小说软件地址：https://www.applnn.cc/tag/小说 (https://www.applnn.cc/tag/小说)
-7.漫画软件地址：https://www.applnn.cc/tag/漫画 (https://www.applnn.cc/tag/漫画)
-8.音乐软件地址：https://www.applnn.cc/tag/音乐 (https://www.applnn.cc/tag/音乐)
-9.剪辑软件地址：https://www.applnn.cc/tag/剪辑 (https://www.applnn.cc/tag/剪辑)
-10.PS软件地址：https://www.applnn.cc/tag/ps (https://www.applnn.cc/tag/ps)
+https://www.applnn.cc/tv 
+3.科网软件地址：
+https://www.applnn.cc/tag/科网 
+4.你懂的软件地址：
+https://www.applnn.cc/tag/你懂的
+5.影视软件地址：
+https://www.applnn.cc/tag/影视
+6.小说软件地址：
+https://www.applnn.cc/tag/小说 
+7.漫画软件地址：
+https://www.applnn.cc/tag/漫画
+8.音乐软件地址：
+https://www.applnn.cc/tag/音乐
+9.剪辑软件地址：
+https://www.applnn.cc/tag/剪辑
+10.PS软件地址：
+https://www.applnn.cc/tag/ps 
 
 ## TG频道及群组：
 
