@@ -6,17 +6,21 @@ GitHub：[https://github.com/ajklpl/APPchangku](https://github.com/ajklpl/APPcha
 
 ## 下载地址（按更新时间倒序排列）：
 
-诚通网盘: https://url74.ctfile.com/d/28870574-49023952-f6391a?p=1110  (访问密码: 1110)（能用就用这个，感谢）
-
-蓝奏网盘：[https://ajk.lanzout.com/b00tn2sha](https://ajk.lanzout.com/b00tn2sha)
+网站：www.applnn.cc(https://www.applnn.cc)
 
 ## 软件列表（按软件分类）：
-GitHub：
-https://github.com/ajklpl/APPchangku/blob/main/LB.md
-
-点击文字直到分类：[影视](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%BD%B1%E8%A7%86)   [音乐](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E9%9F%B3%E4%B9%90) [漫画](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E6%BC%AB%E7%94%BB)
-[TV](https://github.com/ajklpl/APPchangku/blob/main/LB.md#t-v) [小说](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%B0%8F%E8%AF%B4) [壁纸](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%A3%81%E7%BA%B8) [工具](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%B7%A5%E5%85%B7) [办公](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%8A%9E%E5%85%AC) [视频工具](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E8%A7%86%E9%A2%91%E5%B7%A5%E5%85%B7) [PS工具](https://github.com/ajklpl/APPchangku/blob/main/LB.md#p-s-%E5%B7%A5%E5%85%B7) [分身定位](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E5%88%86%E8%BA%AB%E5%AE%9A%E4%BD%8D) [生活应用](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E7%94%9F%E6%B4%BB%E5%BA%94%E7%94%A8) [磁力工具](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E7%A3%81%E5%8A%9B%E5%B7%A5%E5%85%B7) [番茄工具](https://github.com/ajklpl/APPchangku/blob/main/LB.md#%E7%95%AA%E8%8C%84%E5%B7%A5%E5%85%B7)
-
+1.更新网站： 
+https://www.applnn.cc/ （https://www.applnn.cc/ ）
+2.TV软件地址： 
+https://www.applnn.cc/tv （https://www.applnn.cc/tv ）
+3.科网软件地址：https://www.applnn.cc/tag/科网 (https://www.applnn.cc/tag/科网 )
+4.你懂的软件地址：https://www.applnn.cc/tag/你懂的(https://www.applnn.cc/tag/你懂的)
+5.影视软件地址：https://www.applnn.cc/tag/影视 (https://www.applnn.cc/tag/影视)
+6.小说软件地址：https://www.applnn.cc/tag/小说 (https://www.applnn.cc/tag/小说)
+7.漫画软件地址：https://www.applnn.cc/tag/漫画 (https://www.applnn.cc/tag/漫画)
+8.音乐软件地址：https://www.applnn.cc/tag/音乐 (https://www.applnn.cc/tag/音乐)
+9.剪辑软件地址：https://www.applnn.cc/tag/剪辑 (https://www.applnn.cc/tag/剪辑)
+10.PS软件地址：https://www.applnn.cc/tag/ps (https://www.applnn.cc/tag/ps)
 
 ## TG频道及群组：
 
