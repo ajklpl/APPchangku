@@ -8,6 +8,7 @@ Applnn是免费分享网络资源的小众平台，欢迎大家参考
 ## 下载地址（按更新时间倒序排列）：
 
 网站：www.applnn.com
+
 客户端:https://ajk.lanzout.com/b0hcwukvi
 
 ## 软件列表（按软件分类）：
