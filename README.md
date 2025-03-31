@@ -10,39 +10,39 @@ GitHub：[https://github.com/ajklpl/APPchangku](https://github.com/ajklpl/APPcha
 
 ## 软件列表（按软件分类）：
 1.更新网站： 
-https://www.applnn.cc/ 
+https://www.applnn.com/ 
 
 2.TV软件地址： 
-https://www.applnn.cc/tv 
+https://www.applnn.com/tv 
 
 3.科网软件地址：
-https://www.applnn.cc/tag/科网 
+https:/www.applnn.com/tag/科网 
 
 4.你懂的软件地址：
-https://www.applnn.cc/tag/你懂的
+https://www.applnn.com/tag/你懂的
 
 5.影视软件地址：
-https://www.applnn.cc/tag/影视
+https://www.applnn.com/tag/影视
 
 6.小说软件地址：
-https://www.applnn.cc/tag/小说 
+https://www.applnn.com/tag/小说 
 
 7.漫画软件地址：
-https://www.applnn.cc/tag/漫画
+https://www.applnn.com/tag/漫画
 
 8.音乐软件地址：
-https://www.applnn.cc/tag/音乐
+https://www.applnn.com/tag/音乐
 
 9.剪辑软件地址：
-https://www.applnn.cc/tag/剪辑
+https://www.applnn.com/tag/剪辑
 
 10.PS软件地址：
-https://www.applnn.cc/tag/ps 
+https://www.applnn.com/tag/ps 
 
 
 ## TG频道及群组：
 
-Telegram频道：[https://t.me/ajk_app](https://t.me/ajk_app)
+Telegram频道：[https://t.me/zyfxlnn](https://t.me/zyfxlnn)
 
 Telegram群组：[https://t.me/ajk_jiaoliu](https://t.me/ajk_jiaoliu)
 
@@ -60,4 +60,3 @@ Telegram群组：[https://t.me/ajk_jiaoliu](https://t.me/ajk_jiaoliu)
 
 ④如有侵犯您的版权，请电邮至邮箱：appbzkz@qq.com，本项目将立即改正。本项目对互联网版权绝对支持。
 
-##  说明文字搬运来自好软分享：https://github.com/yoyodadada/haoruanfenxiang
